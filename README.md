@@ -1,0 +1,1 @@
+Yandex Diplom 2
